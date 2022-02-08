@@ -25,14 +25,21 @@
 - They also attack Singapore and also Guam and Wake island and also the Philippines which was a US possession ever since the Spanish American war and also Hong Kong which was a British possession and also before the end of 1941 they attack Netherlands East Indies because it had a lot of resources and was also already overrun by the Germans and they also attack Burma.
 - So Japan was being very bold because of their imperial ambibions and the US were not happy about Japan's attack to Pearl Harbor and they were already sympathetic to the Allies because they didnt like what was going on in Europe they didnt like what was going on in China and that causes the United States to enter into World War 2 on the side of the Allies and then the Axis Powers decleared war on the US which was a big deal.
 
-## The United States Joins WW2
-We are now entering 1942 the United States has just entered into WW2 and you might remember in December 1941 Japan goes on a major offensive they try to knock out the US Pacific fleet in Pearl Harbor then they attack Wake island, Guam, Hong Kong, the Philippines, Singapore, Malaya then shortly after that they go after other possessions like Burma then they go after the Dutch-East Indies in their quest for natural resources.
- So as you can imagine as we go into 1942 the Americans are eager to retaliate and the first notable action in 1942 is the Doolittle Raid which is named after Colonel Doolittle who is the creator of this raid.
- And the idea of this raid is not a strategic victory but more of a psychological one.
- If the US could somehow attack and bomb the mainland of Japan it would be a huge morale booster for the Americans and it also might cause the Japanese people to question their own leadership.
- So the idea was to send a carrier within bomber range roughly a 1000 miles off the coast of Japan and then send 16 B-25 bombers to bomb the mainland.
- 15 of the bombers since they cant land back onto the carrier because they are too heavy and too large to do that they land in China and one of them gets diverted to Russia.
- Only after months of the attack on Pearl Harbor the US is able to attack the Japanese mainland and this a more psychological victory over a strategic one but still a major psychological victory for the US.
- And then in May you have the first major naval engagement between the Japanese and American navy and this is significant because the US loses more than the Japanese do but it is able to cripple the Japanese navy enough so that as they go into their next major offensive they dont have quite the firepower that they need.
- And that next major offensive happens in June at Midway.
+## The US Joins WW2 
+- We are now entering 1942 the United States has just entered into WW2 and you might remember in December 1941 Japan goes on a major offensive they try to knock out the US Pacific fleet in Pearl Harbor then they attack Wake island, Guam, Hong Kong, the Philippines, Singapore, Malaya then shortly after that they go after other possessions like Burma then they go after the Dutch-East Indies in their quest for natural resources.
+- So as you can imagine as we go into 1942 the Americans are eager to retaliate and the first notable action in 1942 is the Doolittle Raid which is named after Colonel Doolittle who is the creator of this raid.
+- And the idea of this raid is not a strategic victory but more of a psychological one.
+- If the US could somehow attack and bomb the mainland of Japan it would be a huge morale booster for the Americans and it also might cause the Japanese people to question their own leadership.
+- So the idea was to send a carrier within bomber range roughly a 1000 miles off the coast of Japan and then send 16 B-25 bombers to bomb the mainland.
+- 15 of the bombers since they cant land back onto the carrier because they are too heavy and too large to do that they land in China and one of them gets diverted to Russia.
+- Only after months of the attack on Pearl Harbor the US is able to attack the Japanese mainland and this a more psychological victory over a strategic one but still a major psychological victory for the US.
+- And then in May you have the first major naval engagement between the Japanese and American navy and this is significant because the US loses more than the Japanese do but it is able to cripple the Japanese navy enough so that as they go into their next major offensive they dont have quite the firepower that they need.
+- And that next major offensive happens in June at Midway and the Battle of Midway this is a Japanese offensive and their goal is to further knock out the United States.
+- But it ends up backfiring on the Japanese and this is a big deal because this is the first Japanese naval loss since the Battle of Shimonoseki Straits in 1863.
+- And then in August happens the Battle of Guadalcanal where there are several islands and the US want to take it but the Japanese want to retake it.
+- But between the on the ground forces and the naval forces the US is able to defeat the Japanese and keep them from taking Guadalcanal.
+- And this is a big deal because between Midway and Guadalcanal in 1942 this is kind of the turning point because in Midway the Japanese were on the offensive here then the Japanese tried to get the US out of Guadalcanal in August but in both of those the Japanese lose because in Midway the US are able to defeat the Japanese and they are able to fend them off at Guadalcanal.
+- This is the turning point where the US is able to go on the offensive so 1942 is a very big deal because its only months after Pearl Harbor only months after the US enters the war but its able to start turning the tide and start to go on the offensive against the Japanese in the Pacific.
+
+## The Tides Turn
 
