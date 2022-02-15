@@ -26,6 +26,7 @@
 - So Japan was being very bold because of their imperial ambibions and the US were not happy about Japan's attack to Pearl Harbor and they were already sympathetic to the Allies because they didnt like what was going on in Europe they didnt like what was going on in China and that causes the United States to enter into World War 2 on the side of the Allies and then the Axis Powers decleared war on the US which was a big deal.
 
 ## The US Joins WW2 
+
 - We are now entering 1942 the United States has just entered into WW2 and you might remember in December 1941 Japan goes on a major offensive they try to knock out the US Pacific fleet in Pearl Harbor then they attack Wake island, Guam, Hong Kong, the Philippines, Singapore, Malaya then shortly after that they go after other possessions like Burma then they go after the Dutch-East Indies in their quest for natural resources.
 - So as you can imagine as we go into 1942 the Americans are eager to retaliate and the first notable action in 1942 is the Doolittle Raid which is named after Colonel Doolittle who is the creator of this raid.
 - And the idea of this raid is not a strategic victory but more of a psychological one.
@@ -41,5 +42,13 @@
 - And this is a big deal because between Midway and Guadalcanal in 1942 this is kind of the turning point because in Midway the Japanese were on the offensive here then the Japanese tried to get the US out of Guadalcanal in August but in both of those the Japanese lose because in Midway the US are able to defeat the Japanese and they are able to fend them off at Guadalcanal.
 - This is the turning point where the US is able to go on the offensive so 1942 is a very big deal because its only months after Pearl Harbor only months after the US enters the war but its able to start turning the tide and start to go on the offensive against the Japanese in the Pacific.
 
+## The Tide Turns
+
+Just as Guadalcanal is happenning you might remember that in 1941 Hitler and the Nazis decided that they wanted to attack the Soviet Union.
+Then the siege of Leningrad starts in 1941 and then in 1942 by August they are able to reach Stalingrad and it is extremely bloody there are even movies about Stalingrad so it was insanely bloody.
+But the battles in Stalingrad start in August of 1942 and they continue until February of 1943 and this marks the turning point for hitler because he's getting destroyed in Leningrad and Stalingrad and eventually gets defeated in Stalingrad in early 1943 and his army is spread really really thin so Stalingrad is a very important event in WW2 and this is going on right around when Guadalcanal was going on in the Pacific.
+And then in October in North Africa there is something strategic there called the Suez Canal and it is strategic because it connects the Mediterranean with the Red Sea and the Indian Ocean so you dont have to go all the way around Africa to go from Europe to the Indian Ocean so its an incredibly strategic way to between Europe and Asia.
+So as you can imagine the British wanted to protect the Suez Canal and the Axis Powers would have loved to get control of the Suez Canal.
+And also in October the British are able to defeat and push back the Axis Powers and this leads to the British being able to go to Tunisa and the same time this is happenning in October the other allied forces are starting to arrive in Morroco and Algeria so the forces from the US are arriving in Morroco and the forces from Great Britain are arriving in Algeria and this lets the Allies take power of North Africa from which they can attack the European mainland.
 
 
