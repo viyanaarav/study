@@ -41,5 +41,5 @@
 - And this is a big deal because between Midway and Guadalcanal in 1942 this is kind of the turning point because in Midway the Japanese were on the offensive here then the Japanese tried to get the US out of Guadalcanal in August but in both of those the Japanese lose because in Midway the US are able to defeat the Japanese and they are able to fend them off at Guadalcanal.
 - This is the turning point where the US is able to go on the offensive so 1942 is a very big deal because its only months after Pearl Harbor only months after the US enters the war but its able to start turning the tide and start to go on the offensive against the Japanese in the Pacific.
 
-## The Tides Turn
+
 
