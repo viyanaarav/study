@@ -1,7 +1,9 @@
-if m < 2 then
-    return m
-  end
-  return inner(m-1) + inner(m-2)
-end
-return inner(n)
+n = 20
+a = 0
+b = 1
+for i = 1, n do
+c = a + b
+a = b
+b = c
+    print(c)
 end
