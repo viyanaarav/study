@@ -6,4 +6,3 @@ for i = 2, x - 1 do
         print(f)
     end
 end
-
